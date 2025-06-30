@@ -1,5 +1,3 @@
-### Seja bem-vindo ao meu perfil!
-
 Ricardo V K Rizzon
 🚀 **Engenheiro de Dados | Físico Teórico**
 
